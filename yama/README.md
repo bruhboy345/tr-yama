@@ -1,0 +1,3 @@
+##  GÜNCELLEME NOTLARI
+
+Şuanlık yok
